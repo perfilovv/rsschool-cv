@@ -1,1 +1,1 @@
-# rsschool-cv
+https://perfilovv.github.io/rsschool-cv/cv
