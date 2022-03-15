@@ -1,1 +1,1 @@
-https://perfilovv.github.io/rsschool-cv/cv
+https://perfilovv.github.io/rsschool-cv/
